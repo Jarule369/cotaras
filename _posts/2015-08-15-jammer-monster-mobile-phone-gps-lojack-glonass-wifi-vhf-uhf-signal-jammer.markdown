@@ -1,5 +1,5 @@
 ---
-published: true
+published: false
 title: Jammer Monster - Mobile Phone GPS Lojack Glonass Wifi VHF UHF Signal Jammer
 layout: post
 ---
