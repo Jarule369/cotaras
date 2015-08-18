@@ -1,6 +1,6 @@
 ---
-published: true
-title: Smart Anti-spy Wireless Hidden Camera Detector
+published: false
+title: Smart Anti Spy Wireless Hidden Camera Detector
 layout: post
 ---
 <a href=" http://www.phonejammer.com.au/smartantispywirelesshiddencameradetector-p-201.html " title=" Smart Anti-spy Wireless Hidden Camera Detector "><img src=" http://www.phonejammer.com.au/images/jammera/audetector20150722005.jpg " alt=" Smart Anti-spy Wireless Hidden Camera Detector " width="100%" height="100%" /></a>
