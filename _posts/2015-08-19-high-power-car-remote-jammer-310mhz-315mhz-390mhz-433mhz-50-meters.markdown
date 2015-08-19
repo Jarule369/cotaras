@@ -5,7 +5,8 @@ layout: post
 ---
 <a href=" http://www.phonejammer.com.au/highpowercarremotejammer310mhz315mhz390mhz433mhz50meters-p-191.html " title=" High Power Car Remote Jammer 310MHZ 315MHz 390MHZ 433MHz 50 Meters "><img src=" http://www.phonejammer.com.au/images/jammera/aurctoy20150722009.jpg " alt=" High Power Car Remote Jammer 310MHZ 315MHz 390MHZ 433MHz 50 Meters " width="100%" height="100%" /></a>
 
-<li><a href=http://www.phonejammer.com.au/highpowercarremotejammer310mhz315mhz390mhz433mhz50meters-p-191.html"  title="http://www.phonejammer.com.au/highpowercarremotejammer310mhz315mhz390mhz433mhz50meters-p-191.html" style="font-size:18px; font-weight:bold; color:#F00;"> http://www.phonejammer.com.au/highpowercarremotejammer310mhz315mhz390mhz433mhz50meters-p-191.html</a></li>
+http://www.phonejammer.com.au/highpowercarremotejammer310mhz315mhz390mhz433mhz50meters-p-191.html
+
 
 <div class="product-tabs-content" id="product_tabs_description_contents">
           <div class="std"> <h2>High Power Car Remote Jammer 310MHZ 315MHz 390MHZ 433MHz 50 Meters</h2>
